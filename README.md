@@ -1,2 +1,2 @@
 # drum-kit
- Challenge by : App Brewery
+ Challenge by : XBI i uge 8
